@@ -18,9 +18,9 @@ Es macht also Sinn mal bei den anderen Amazon Seiten zu schauen Preise zu vergle
 Ich habe mal alle sinnvollen Links rausgesucht.
 
 
-### Amazon Frankreich 64GB
+### Amazon Frankreich 128GB
       
-ht<span>tp://</span>amzn.to/3bLUWuP
+ht<span>tp://</span>amzn.to/2UKwLru
 
 ### Frankreich 265GB
       
